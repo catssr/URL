@@ -1,11 +1,12 @@
 官网：https://catssr.com
 
 各路朋友请把此发布站加入收藏夹！
+以防丢失！
 
 备用：
 
-https://cat001.xyz
+[http://gy.kuaiyy.top:41541](http://gy.kuaiyy.top:41541)
 
-https://cat002.xyz
+[https://gd.kuaiyy.top:46609](http://gd.kuaiyy.top:46609)
 
-https://cat003.xyz
+[https://gw.kuaiyy.top:33034](http://gw.kuaiyy.top:33034)
